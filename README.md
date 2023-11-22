@@ -1,6 +1,8 @@
-### Hi there 👋
+### Hi,  I'm DUDLAS 👋 
 
-<!--
+- 🌱 My latest project is a collaboration in the project ̈ Locanjamos.¨ ...
+- 👯 I like to learn new technologies.
+
 **DUGLASPAEZ/DUGLASPAEZ** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
 Here are some ideas to get you started:
