@@ -9,7 +9,7 @@
   
 - 🌱 My latest project is a collaboration in the project ̈ Locanjamos.¨ ...
 - 👯 I like to learn new technologies.
-- 🔭 I’m currently working on ... https://github.com/SantinoMantineo/Lo-Canjeamos.git
+- 🔭 I’m currently working on ... https://www.youtube.com/watch?v=_p5UE6loYg4
 
 
 
