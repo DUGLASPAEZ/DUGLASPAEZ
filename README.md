@@ -10,6 +10,8 @@
 - 👯 I like to learn new technologies.
 - 🔭 I’m currently working on ... https://www.youtube.com/watch?v=_p5UE6loYg4
 
+- contact me: paez18730@gmail.com
+- duglaspaez_16@hotmail.com 
 
 
 
